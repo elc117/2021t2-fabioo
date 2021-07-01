@@ -1,3 +1,3 @@
-Participantes: Fábio Corrêa Costa Junior
+**Participantes:** Fábio Corrêa Costa Junior
   
   [Video da apresentação](#)
